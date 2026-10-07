@@ -1,0 +1,2 @@
+Nama:Ardo
+NIM:71261241
